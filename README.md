@@ -1,0 +1,1 @@
+t.me/search_the_best_hotels_bot - ссылка на бота
